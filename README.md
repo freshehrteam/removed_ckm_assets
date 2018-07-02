@@ -1,0 +1,1 @@
+# removed_ckm_assets
